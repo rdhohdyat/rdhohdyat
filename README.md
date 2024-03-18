@@ -6,6 +6,6 @@
 
 💞️ I'm looking to collaborate on exciting web projects that push the boundaries of creativity and innovation. Whether it's building interactive web applications or contributing to open-source projects, count me in!
 
-📫 You can reach me via email at [your@email.com] or connect with me on LinkedIn [your LinkedIn profile URL].
+📫 You can reach me via email at [rdho.hdyat@gmail.com]
 
 😄 Pronouns: He/Him
