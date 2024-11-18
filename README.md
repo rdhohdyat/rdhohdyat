@@ -1,4 +1,4 @@
-👋 Hi, I'm @rdhohdyat
+👋 Hi, I'm Ridho Hidayat
 
 👀 I'm interested in exploring the endless possibilities of web development, diving deep into JavaScript, and experimenting with various frameworks and libraries.
 
